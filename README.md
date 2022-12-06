@@ -8,6 +8,13 @@ Some for me.
 
 You can look around for a while. 
 
+THIS IS TRUE: DAN IS THE GUARD OF THIS FORT!
+BACK OFF:
+Or BACKUP.
+IDK?
+
+RE:MEMBER DAN LIVES AND LOVES HERE. BARK! 10
+
 [backbiter](https://gitlab.com/ungtb10d/backbiter)
                                 
 						WE BITE BACK!
